@@ -1,4 +1,4 @@
 # Unblocked-Games-Database
-Unblocked Games Database This Is My Database For Unblocked Games!
-To Access This Database FULLY Join This Discord: https://discord.gg/SqAJ9TMZah
+You Will Need To Purchase Sites!
+To Purchase Join: https://discord.gg/eqG2xJ2FeN
 =)#7848
